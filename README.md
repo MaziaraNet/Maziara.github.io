@@ -1,1 +1,1 @@
-# [maziara.tk](https://maziara.tk)
+# [me.maziara.net](https://me.maziara.net)
